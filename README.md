@@ -36,6 +36,42 @@ Marco Téorico
 
 Resolucion de ejercicios
 
+![](https://github.com/aicanarejo/Informe-8/blob/main/c5d73670742cc1badd6f286892b49d52-0.png)
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
+![](
+
 Video
 
 Conclusiones 
