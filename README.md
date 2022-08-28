@@ -36,41 +36,71 @@ Marco Téorico
 
 Resolucion de ejercicios
 
-![](https://github.com/aicanarejo/Informe-8/blob/main/c5d73670742cc1badd6f286892b49d52-0.png)
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00001.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00002.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00003.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00004.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00005.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00006.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00007.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00008.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00009.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00010.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00011.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00012.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00014.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00015.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00016.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00017.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00018.png)
 
-![](
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00019.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00020.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00021.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00022.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00023.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00024.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00025.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00026.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00027.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00028.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00029.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00030.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00031.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00032.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00033.png)
+
+![](https://github.com/aicanarejo/Informe-8/blob/main/Ejercicos%20cap%2015%20y%2016/Ejercicos%20cap%2015%20y%2016%20(1)_00034.png)
 
 Video
 
